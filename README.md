@@ -1,1 +1,0 @@
-# rdtechindo.github.io
